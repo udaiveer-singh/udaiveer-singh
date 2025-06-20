@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on real-life projects
 - 📫 How to reach me LinkedIn 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i sees each phase of day sunrise sunset moonrise moonset
+- ⚡ Fun fact: getback to work no time pass
 
 <!---
 udaiveer-singh/udaiveer-singh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
